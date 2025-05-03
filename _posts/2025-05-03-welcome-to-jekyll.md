@@ -12,3 +12,5 @@ Minor: Fintech
 Certificate: Business Analytics
 
 I am interested in data science, consulting, entrepreneurship, and marketing.
+
+![image](https://github.com/user-attachments/assets/3409253e-42a4-4c53-b31f-14787e4a5631)
