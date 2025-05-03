@@ -22,5 +22,5 @@ Relevant Coursework: Corporate Strategy, Business Programming, Strategic Entrepr
 
 Organizations: Delta Sigma Phi, Undergraduate Consulting Club, Delta Sigma Pi Professional Business Fraternity
 
-[CV](https://drive.google.com/drive/folders/16wPMnvTQFY9TFqmJcLTRjercBZ_wPeZ0?dmr=1&ec=wgc-drive-hero-goto)
+[CV](https://drive.google.com/drive/folders/16wPMnvTQFY9TFqmJcLTRjercBZ_wPeZO?dmr=1&ec=wgc-drive-hero-goto)
 
